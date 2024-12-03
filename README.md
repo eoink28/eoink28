@@ -15,12 +15,12 @@
 # About me:
 
 - Currently I work part time as a barista on a farm!
-- I play Xbos and have an interest in the gaming space
+- I play Xbox and have an interest in the gaming space
 - I play golf and love the gym
 - Im in Balbriggan Scout group 
 
 # LETS BUILD TOGETHER!!
 
-- Reach out to me via my email if you would like to collaborate on exciting tec projects!!
+- Reach out to me via my email if you would like to collaborate on exciting tec projects!! [Contact me!](C23350933@mytudublin.ie)
 
 
