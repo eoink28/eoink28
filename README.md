@@ -21,6 +21,6 @@
 
 # LETS BUILD TOGETHER!!
 
-- Reach out to me via my email if you would like to collaborate on exciting tec projects!! [Contact me!](C23350933@mytudublin.ie)
+- Reach out to me via my email if you would like to collaborate on exciting tec projects!!
 
 
