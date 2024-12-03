@@ -10,7 +10,7 @@
 
 - C
 - Pyhton
-- ST Nucleo L031K6
+- Interacting with ST_Nucleo_L031K6 and Breadboards
   
 # About me:
 
